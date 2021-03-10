@@ -1,1 +1,0 @@
-# Combined-Cycle-Power-Plant
